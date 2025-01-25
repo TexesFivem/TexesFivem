@@ -68,14 +68,6 @@ Discord: @bl.1 or [Texes](https://discord.gg/VfNVJFYGMN)
 
 ###
 
-<br clear="both">
-
-<img src="https://raw.githubusercontent.com/TexesFivem/TexesFivem/output/snake.svg" alt="Snake animation" />
-
 ###
 
-<div align="center">
-  <img height="200" src="https://media.discordapp.net/attachments/1153671782025416845/1332668681028898858/tEXES_FIVEM.gif?ex=679617ed&is=6794c66d&hm=681edf1abaf442fb64a0d4320021495151abb4ca72cd203f3420f3db26c2c478&="  />
-</div>
-
-###
+```Love u All join my ```[Discord](https://discord.gg/VfNVJFYGMN)
